@@ -7,7 +7,7 @@ Creación de un repositorio de ejemplo dentro de la organización, donde cada mi
 Estudiante	Commit
 Natalia Bonilla Herrera
 
-Juan Sebastian Latotrre Cardenas
+Juan Sebastian Latotrre Cardenas✅
 
 Hernán David Quijano González
 
