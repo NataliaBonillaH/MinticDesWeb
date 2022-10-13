@@ -9,7 +9,7 @@ Natalia Bonilla Herrera
 
 Juan Sebastian Latotrre Cardenas✅
 
-Hernán David Quijano González
+Hernán David Quijano González✅
 
 LIDa Tatiana Vega ríos
 
